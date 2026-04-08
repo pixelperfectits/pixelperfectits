@@ -28,7 +28,7 @@ I am the Founder of **Pixel Perfect IT Solutions**, specializing in high-fidelit
 
 ### 📞 Connect with the Architect
 - **WhatsApp:** [+8801715354960](https://wa.me/8801715354960)
-- **Email:** pixelperfect.its@gmail.com / ibrahim.dev360@gmail.com
+- **Email:** pixelperfect.its@gmail.com
 - **HQ:** Kathalbari, Shibchar, Madaripur, Bangladesh.
 
 ---
