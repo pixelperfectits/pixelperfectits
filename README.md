@@ -1,4 +1,4 @@
-# 👋 Assalamu Alaikum, I am MD IBRAHIM HOSSAIN (FAKIR)
+# 👋 Assalamu Alaikum, I am MD IBRAHIM HOSSAIN 
 ### Principal Systems Architect & Strategic Lead (Land & Logic)
 
 "Your Vision, Engineered to Perfection — Through Land & Logic."
